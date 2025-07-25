@@ -1,0 +1,1 @@
+# MediaScope-japan
